@@ -1,3 +1,3 @@
-## Soviet Patchwork Temporary page
+## Mela Temporary page
 
-This website is for preserving the domain name: Soviet Patchwork even if a change name is effected.
+This website is for preserving the domain name: Mela even if a change name is effected.
